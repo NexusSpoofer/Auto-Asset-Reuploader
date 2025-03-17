@@ -11,4 +11,4 @@ Install the plugin and press some silly buttons.
 
 Have an issue?
 
-Feel free to join our discord and report it to me. You can join by clicking the discord button at the top. Alternatively dm me on discord, alekfart. I will help to the best of my abilities.
+Feel free to join our discord and report it to me. You can join by clicking the discord button at the top. Alternatively dm me on discord, nexusnexusing. I will help to the best of my abilities.
